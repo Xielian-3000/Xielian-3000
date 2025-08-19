@@ -6,6 +6,8 @@
 
 **This account is for spam follows. Follow my main acc if you'd like! I follow back.**
 
+## Don't forget to love TGCF 🤑
+
 <!--
 **Xielian-3000/Xielian-3000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
