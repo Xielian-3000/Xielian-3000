@@ -2,6 +2,8 @@
 
 ## Heyy!
 
+**I only really follow on this acc.**
+
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/badca6b0-044a-4ce8-bb1e-60386667a208" />
 
 **This account is a spam follow made for not much reason.**
