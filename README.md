@@ -4,11 +4,11 @@
 
 **I only really follow on this acc.**
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/badca6b0-044a-4ce8-bb1e-60386667a208" />
+<img width="735" height="396" alt="image" src="https://github.com/user-attachments/assets/2f65b188-94e6-4f60-a0e6-7615da748df7" />
 
 **This account is a spam follow made for not much reason. I follow EVERYONE and EVERYTHING**
 
-## Don't forget to love TGCF 🤑
+## Don't forget to love TGCF 🤑 I'm definetly not addicted...
 
 <!--
 **Xielian-3000/Xielian-3000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
