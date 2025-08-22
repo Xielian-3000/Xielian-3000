@@ -1,8 +1,8 @@
-<div align="center">
+w<div align="center">
 
 ## ![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp) Heyy! ![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp)
 
-**I only really follow on this acc.**
+**I only really follow on this acc. I also follow followers from my other acc <3**
 
 <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/1334d2cd-63e5-4b8c-8341-6215b0c17fc8" />
 
