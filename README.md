@@ -16,7 +16,7 @@
 
 ## Don't forget to love TGCF 🤑 I'm definetly not addicted...
 
-![Bubbles](https://i.ibb.co/0RNKtvcF/tumblr-246b53ff77d1df34384c19f35e449a4d-7d0f651e-75.webp) <sub> [Ata](https://chickenbootyweezer.atabook.org/) 
+![Bubbles](https://i.ibb.co/0RNKtvcF/tumblr-246b53ff77d1df34384c19f35e449a4d-7d0f651e-75.webp)<sub>[Ata](https://chickenbootyweezer.atabook.org/) 
 ![Bubbles](https://i.ibb.co/0RNKtvcF/tumblr-246b53ff77d1df34384c19f35e449a4d-7d0f651e-75.webp) 
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8c67300f-f84b-47aa-897d-67f66e5d8da2" />
