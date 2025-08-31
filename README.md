@@ -2,8 +2,7 @@
 
 ## ![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp) Heyy! ![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp)
 
-**I only really follow on this acc. I also follow followers from my other acc <3** </br>
-**Block if you DON'T want a follow!**
+**Spam following, block if you don't want a follow!**</br>
 
 <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/1334d2cd-63e5-4b8c-8341-6215b0c17fc8" />
 
@@ -11,11 +10,9 @@
 
 <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/5864e0a8-d47c-40dc-b1c0-9711f7ba51cc" />
 
-![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp) **This account is a spam follow made for not much reason. I follow EVERYONE and EVERYTHING** ![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp)
+![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp) ![Huacheng](https://i.ibb.co/fYYxgL1z/tumblr-9693b80108992c0dfe00fda76c3b53d6-edc4f1b6-75.webp)
 
 ![Starry](https://i.ibb.co/vG0jWmy/tumblr-e8c39011d9adab978529f2479d0237ba-63224269-250.webp)
-
-## Don't forget to love TGCF 🤑 I'm definetly not addicted...
 
 ![Bubbles](https://i.ibb.co/0RNKtvcF/tumblr-246b53ff77d1df34384c19f35e449a4d-7d0f651e-75.webp)<sub>[Ata](https://chickenbootyweezer.atabook.org/) 
 ![Bubbles](https://i.ibb.co/0RNKtvcF/tumblr-246b53ff77d1df34384c19f35e449a4d-7d0f651e-75.webp) 
